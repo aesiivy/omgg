@@ -1,2 +1,1 @@
-# omgg
-stop stalking me
+need an obsfucator? dm me, z $#0001
